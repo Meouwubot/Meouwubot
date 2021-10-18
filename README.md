@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Meouwubot
+- 👀 I’m interested in Anime & games
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on anything;)
+- 📫 How to reach me uninani13@gmail.com(it may take me a while to respond, sorry bout that)
